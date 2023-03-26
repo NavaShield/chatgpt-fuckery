@@ -1,0 +1,2 @@
+# chatgpt-fuckery
+cringe
